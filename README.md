@@ -6,4 +6,4 @@
 - 📫 How to reach me pelo whatApp
 - Desejo a todos muita saúde e paz
 
-![](https://tenor.com/pt-BR/search/yorkshire-gifs)
+https://tenor.com/pt-BR/search/yorkshire-gifs
